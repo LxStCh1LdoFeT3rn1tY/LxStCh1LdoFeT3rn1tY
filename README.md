@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kitnofrags
+- 👋 Hi, I’m @LxStCh1LdoFeT3rn1tY 
 - 👀 I’m interested in music, gaming, and watching anime.
 - 🌱 I’m currently studying as a high school student.
 
