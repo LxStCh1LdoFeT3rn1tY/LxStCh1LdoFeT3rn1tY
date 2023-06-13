@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @LxStCh1LdoFeT3rn1tY 
-- 👀 I’m interested in music, gaming, and watching anime.
-- 🌱 I’m currently studying as a high school student.
+- 👋 Hi, welcome to my profile!
+- 👀 I’m interested in music, tech, and watching anime.
+- 🌱 I’m currently a high school student.
 
 
 
